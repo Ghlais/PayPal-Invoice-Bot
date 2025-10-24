@@ -135,8 +135,6 @@
 
 ## 🧠 صُنع بحُب بواسطة Ghlais ❤️
 
-**X3-Hosting – Since 2019**
 🚀 استضافة متكاملة للألعاب والبوتات والمواقع
-🌍 [https://www.x3-hosting.xyz](https://www.x3-hosting.xyz)
 💬 Discord: [https://discord.x3-hosting.xyz](https://discord.x3-hosting.xyz)
 
